@@ -1,5 +1,3 @@
-# Chrisamaconf 40
-
 **What?** The first irregular Chrisamaconf 40 is a one day celebration of the strange and wonderful people in the life of Chris Martens. It light-heartedly and very approximately borrows the structure of an academic workshop, and attendees have the (optional!) opportunity to bring the gift of a presentation or performance, with topics in scope including anything of interest to Chris and/or their friends, including but not limited to:
 
  - Math (especially: type theory, logic, algebra, topology, category theory)
