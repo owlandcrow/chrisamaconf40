@@ -10,7 +10,7 @@
  - Your last Wikipedia rabbithole
 - Your impassioned hot take that you want to persuade everyone of
 
-The specific structure of the event will be somewhat up to the attendees and what gifts people propose to bring! The call for talks is coming soon.
+The specific structure of the event will be somewhat up to the attendees and what gifts people propose to bring! [The call for talks open, with a deadline of April 22](https://docs.google.com/forms/d/e/1FAIpQLSdCk0FS3J-VmEN7uM6RZ1RC5oMW2mPuJj2w_lv6Y0S_goBLvw/viewform).
 
 **Where?** At the [City Museum in St. Louis](https://citymuseum.org). Chris and Rob are planning on staying at the [St. Louis Union Station Hotel](https://www.hilton.com/en/hotels/stlcuqq-st-louis-union-station-hotel/), but aren't doing a block reservation anywhere.
 
